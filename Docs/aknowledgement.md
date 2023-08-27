@@ -23,7 +23,9 @@ Thank you, each and every one, for being part of the HealthLink journey.
 Sincerely,
 
 [KOSASIH](https://www.linkedin.com/in/kosasih-81b46b5a) 
-Founder and Creator
+
+Founder and Creator 
+
 HealthLink
 
  
